@@ -1,1 +1,1 @@
-# 人見悠生のsexプロフェール.github.io
+# 人見悠生のsexプロフィール.github.io
